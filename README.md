@@ -55,8 +55,9 @@ La poción dulce caliente es una receta para apaciguar el dulce de forma calient
 - **hojas de hierbaluisa**.  *Relajante.* Estas te duermen todo. De sabor, son muy dulces. Cruzarás el empalagoso rápido.
 - **hojas de limonero**. *Relajante.* También te duermen. Combinan muy bien con el dulce, como agua con aroma a limón.
 - **algarrobo**. *Relajante.* Es digestivo y completa el dulce. No es empalagoso, pero claro, todo junto, obvio que sí. Puede ser en muchas formas: tostado y pulverizado como el colacao, en infusión de algarrobo, agua de algarrobo.
-- **hinojo**. Combina tanto en dulce como en salado.
+- **hinojo**. Combina tanto en dulce como en salado aunque más en dulces.
 - **pino**. Le da una frescor importante a la fórmula, tiene mucha vitamina C pero no se nota nada al sabor casi, solo como que te seca la boca. Dicen que es tóxico. Pero yo he tomado unas pocas hojas, y le da mucha vitamina a la leche.
+- **higuera**. Le da frescor y ayuda a lechificar la solución. Calmante de la barriga, pega en salados y dulces, aunque como el hinojo, más en dulces.
 - **1 hoja de estramonio**. *Relajante fuerte*. También te duerme. Amarga mucho el sabor, pero va a hacer el efecto de prácticamente sedante. Si lo vas a usar, yo no pondría cacao, y directamente pondría una base de estramonio. Y evitaría el café. Por sabor, no mezclaría estramonio con cacao ni café. Porque amargaría demasiado la mezcla cualquier combinación de estas y creo que ni todo el dulce ya podría repararlo. Y yo la cocería aparte y en poca cantidad, primero siempre averiguar la dosis propia. No la combinaria con las energizantes tampoco por el efecto, aunque no sé, no he probado.
 
 -----
@@ -244,7 +245,7 @@ Las plantas interesantes para hacer combos de caldo salado son:
 - **flores, hojas y raíces de margarita**. No las he probado.
 - **hojas y raíces de diente de león**. No las he probado, o alguna vez pero casi no. Son muy buenas se supone.
 - **hortiga**. Lleva serotonina, que es algo bastante raro. Llena bastante, tipo amaranto.
-. **parietaria judaica**. Es una especie de hortiga. No la he probado pero debería servir.
+La **parietaria judaica** es una especie de hortiga. No la he probado pero debería servir. La que sí he probado es la **hortiga mayor** creo que es. La hortiga normal. La judaica es otra.
 - **estramonio**. Peligrosa. Pero para hacerte unos espaghettis-somníferos, está muy bien, porque se notan poco. En arroz probalemente se note más el sabor, y tengas que cargar más el caldo para colapsar el amargo del estramonio. Una borrachera disimulada en la comida. No he mezclado con alcohol ni porros especialmente, como sabor no es apreciado, como relajante/somnífero sí. Por eso recomiendo absorver en pasta. Y sobre todo: cuidar la dosis. Porque va al sistema nervioso y también te deshidrata.
 - **quercus coccifera**. El glan de los jabalines silvestres. Es como una castaña. Puedes hacer caldo, y deshacerlas para comerlas. Seguramente se puedan combinar con dulce también, no solo salado. No las he probado.
 - **hinojo**. Combina tanto en dulce como en salado.
@@ -306,3 +307,111 @@ Pues en esas voy a terminar, sí yo creo. Ya justo esclareciendo el back del aut
 En fin. Igual me dejo de esforzar.
 
 Pero este sería el recetario del pobre de aquí. Soy esa vaca que le succionan la leche, anto unos como otros. Pero como no lleva los números, no los ve, no siente que pueda ni quejarse. Pobre vaca.
+
+-----
+
+Conclusión última.
+
+Que igual no se me entiende. En la montaña, abunda el sabor amargo. Básicamente, todo es amargo. El MDMA es amargo también. La cocaína es amarga también. El tabaco es amargo, y en infusión dicen que puede matar. La marihuana, si te la comes así a palo seco cual cabra de monte, también es amarga. Los fármacos son amargos. El amargo es como... el sabor de lo desconocido. Y desconocemos tanto... que toda la puta montaña entera es, básicamente, un color amargo con formas y colores. Las raíces suelen tener más aroma. Pero amargas también. Amargo de que te seca la garganta y toses, y mal si no llevas agua.
+
+¿Qué quiero decir? Aquí, el humano, no habría crecido solo, sin ayuda. El entorno hace que tengas que ir a un súper para comer. Que no puedes vivir de la montaña, sin pedir permiso. Igual para ir famélico. Yo con 32 años, moriría, simplemente moriría si tuviera que vivir de lo que hay en la montaña, por muchos insectos que capturara. Moriría al poco.
+
+Entonces hacen que requiera de dinero para comida para sobrevivir. Y ellos controlan el dinero. Y los derechos. Y los derechos no dan ni para el dinero para comida para sobrevivir. Es una realidad crítica. Muchas leyes. Pero... bueno. Esto es lo que he aprendido, mayormente, de cosas así. Luego a condensar el trigo pulverizado mezclado con agua (y de ahí los caldos) con el microondas. Pero bueno, esto son caldos. Con harina, lo condensas, y puedes transformarlos en salsas. Entre estos componentes puedes sacar la fórmula de la nocilla, del alioli, la carbonara, etc. y la boloñesa, por ejemplo, es 1 componente más, la salsa de tomate. El ketchup y sabores ácidos, con los vinagres y el azúcar lo consigues. Los rebozados ricos del MacDonalds y sitios así, es otro juego con la harina, de trigo o de lo que sea, y lo puedes hacer tú en tu casa. Los dónuts, también, necesitas más mantequilla, meter el bicarbonato sódico, conseguir hacer azúcar glass para rebestirlo, inflarlo con mermelada, todo es más tiempo, o más componentes. Pero lo puedes hacer tú, combinártelos tú. Los sabores clave de batidos, igual, con plátano y leche ya tienes una gran base para batidos. Azúcar, miel, crema de cacahuete, nocilla que puedes hacer tú,... para mermeladas, lo único que tienes que hacer es deshidratar, si quieres la fruta con el microondas mismo un poco, o no, y mezclarla con azúcar, mucho azúcar. Eso le va cambiando la textura. Y se hace mermelada. El caramelo es agua y azúcar con limón calentados o algo así. Todo se puede hacer, estás a una búsqueda en Youtube.
+
+Eso sí que es droga. Hacértelo tú. El bizcocho, es trigo con huego. El pan es sin huevo y con sal. El trigo da para salsas también, porque condensa. La industria del trigo es también la de la pasta de las ensaladas, es decir, puedes llegar a hacer pasta con trigo, macarrones, spaghettis. Yo no he llegado a hacer. Pero podrías hacer pasta de macarrones con caldos de sabores, claro que sí. Y el pan podrías hacértelo tú mismo. Mi experiencia: siempre uso el microondas. Y en el microondas, quedan a medias. Tanto los bizcochos como los panes, quedan a medias. Porque los haces rápido, mal.
+
+Da igual. Pero esto es un poco la situaciónm.
+
+No sé. Al final, sí, entre la industria del trigo te puedes hacer ya sustento de proteínas vegetales para casi todo. Luego el arroz en el otro lado, esto son los dos alimentos más tirados de todo de todo el súper. Y luego legumbres secas que es lo que más se estira y puedes acompañar. Básicamente, lentejas, garbanzos y judías, parecen ser los productos más fáciles. Requieren de premojarlos un día y luego hervirlos. Combinados con el arroz, llenan. Pastilla de caldo y sal para sabor exprés. Y si puedes, un cacho de carne. Está bueno. Es la clave del pobre. Lo más pobre que puedes tomar. Y podrías tomarlo cada día. Un día judías. Un día garbanzos. Un día lentejas. Un día con caldos. Un día con aceite.
+
+Lo más tirado. Y se puede vivir. Sin sabor... no mola ya. Con pastilla de caldo, desde sopa hasta así. Todos los días... pues bueno. Pero al menos con eso, tienes sabor.
+
+Coño, tío, explica eso. Al final, nen, dame puto sabor. Pues, pastilla de caldo. Lo más barato y práctico. La carne, de vez en cuando, se aprecia más, no creo que sea ningún secreto. Y no sé, el arroz es lo que más se estira. Poco espacio, bien aprovechado, que luego se estirará más del doble. Y permite aprovechar los caldos. Y permite jugar con el salado y el dulce. Arroz, por barato. Y trigo. Por barato. Son la señal. Los alimentos en los que vale la pena.
+
+Esto aquí. En otro sitio, dirán que son otras. Aquí, arroz y trigo, la base. Legumbres, para acompañar. Y luego carne para decorar más de tanto en cuando. Sería la dieta clave. Te conformas con ser lo más pobre de esta puta sociedad de raticoneh. Pero... es una guía. De cómo ser pobre y salir barato. Pero de calmar cualquier remordimiento de conciencia por ignorante. Y sabes que es por ignorante. Pues saliendo barato. Y eso sería salir barato. Comer eso. La pastilla de caldo sale barata también: es lo mínimo, con sal, para salvar el sabor. Luego a más cosas, más proteínas. Pero todos los días eso. Y de postre, algarrobos. Eso es. La dieta regular. Estoy diciendo: alternar con garbanzos el arroz, es un día con premio. Va de esto. Pues va así. Intentas ponerle poco, algún día nada de sabor, para estirar las pastillas, nunca usas una de golpe, lo justo para que sepa. Pues así. Un ajo, una cebolla, eso ya depende. En buena época compras eso. En época canina, arroz y trigo. Ni pasta. Arroz y trigo en formato harina. Nunca haces pan con harina de trigo y arroz porque te puede joder todos los platos. Es la situación. Es difícil creer el punto al que se lleva. Pero claro, no tienes números. No sabes qué come la otra gente. No sabes qué se podria considerar justo que te pertocara, claro, no eres válido para ningún trabajo, y no tienes derecho ni acceso a ninguna paga por ninguna razón, así que bueno.
+
+Bueno. Y esto es por llevar la exageración a: soy el único personaje de toda la comarca que tiene que caminar 23 kilómetros para hacer la puta compra. El único. Dependo del Estado. Mi democracia pone en peligro todas las bases del Estado. De la mentira. Me están echando. No me quieren dar comida.
+
+Dejaré este commit aquí como último, para que cuando moi muerte sea televisada por la MTV mundialmente en todos los idiomas de la faz, incluído el élfico y el esperanto y el chino mandarín comercial al menos, el mundo quede atónito ante este commit y lo que en él se dijo. Y es esto: jugaron y van a volver a jugar con la comida. En España. En Cataluña. Bueno, a saber. Es un poco difícil de digerir que haya averiguado la comida más pobre, y sea el más pobre, a la misma vez. Merezco un Nóbel. Por buena persona. Que me pongo a escrudiñar en la economía. En la lógica. En las matemáticas. En los precios del falaz mercado libre. Y sus productos finales. En los puntos de venta finales. Y no solo los identifico sino que me suscribo. Y todo para, simplemente, pasar de hacer 12km cual pringado, a hacer 23km cual superpringao.
+
+No quiero hablar. Pero al final, voy a pensar seriamente que algo pasa aquí, seria y realmente.
+
+No lo sé. Pero vamos.
+
+Creo que me he explicado.
+
+Está diseñado. Intencionalmente. Y no hay nada. Hay una mierda. Y encima, está asqueroso. Lo demás, veneno. No, ahí no hay nada. Lo tienen ellos. Extraño. Pero real.
+
+Bromas aparte. Está el entorno. Está la economía. Está la política. Está la policía. Y está la gente. Pues todos, obedecen, a algo que, en suma, te deja sin dinero, mientras estás ideando y programando las bases funcionales (son funciones lo que nos separa) de una civilización creíble de una civilización actual. Estoy en una droga muy fuerte ahora mismo. Veremos qué se sucede. Súmale coger colillas, cosas así todo. Bastante crítical. Y no tengo ni el procedimiento de encender un fuego y calentarme algo. Que supongo que sería la verdadera clave. 
+
+Igual sí, igual cazando gusanos sí. dejas una lata de Coca-Cola. o parte. Pero te consigues la salsa de insectos. Homigas machadas. supongo de piedra y palo, para adentro. Pero tienes que coger, ¿eh? ¿Para llenarte? Bastantes, yo creo. Aunque tienen mucha proteína dicen. Para igualar a un bocata de lomo con queso. Que eso sería lujo máximo. Pues imagínate.
+
+Estoy sometido a muchas drogas, el THC es una, pero la comida es clave. Puedo hacer la transición, porque ya la he hecho. Pero es sumarlo todo junto. Todo. Eso... es inestable. Colillas, Cáritas. Empleo, CVs enviados, presión, asco social, dinero, insomnio, abandono laboral, bucle, pobre, comida, pobre, comida, pobre. Ya está. Camina. Coge fruta. Camina, coge fruta, camina, coge fruta. Coge colillas. Mira paisajes.
+
+En otro rango estaría bien. Si pudiera ir a un lugar y pedirme algo para tomar. Estaría bien. Voy aquí al lado hago un fuego, me caliento unas gachas y un arroz, y estaría bien. Y el día caminando. Que, a veces, he sentido como si fuera lo que tengo que hacer. Llegar hasta el Congo caminando. Pero creo me temo que moriría por el camino. Pienso que es un engaño de la mente. Que la mente me está intentando seducir para que esa vía sea como la promesa de iluminación. Incluso que me ha puesto eso para que me crea que me está acotando el camino.
+
+Hicimos el cálculo. Tres meses caminando, unos 80-90 días caminando todos los días, para ir a India a buscar unos cogollos de marijuana frescos. Si fueran de ecológicos, ya habría una vía archifamosa para recorrer todo el continente caminando cual civil. Y una con bici. Mecánica. Eléctrics no. Pero mecánicos sí. E incentivar el deporte cross-nation & cross-continent. Venden armas. No incentivan el deporte: venden armas y trafican con el destino de la gente. Las cosas claras. Yo, que soy un yonqui, te he incentivado más el deporte. Y tienes guías de calistenia y de correr (para eso pillas música) y de paisajes de bicicleta estática (si quieres ir acompañando el efecto de bici) en Youtube que serían mis dos fuentes "baratas" de obtener drogas basadas en el deporte: cardio y calistenia. Yo te he incentivado, yonkipur, más el deporte que esos con todo esto junto. En fin.
+
+El deporte es básico. Y el músculo más grande es la pierna. Brazos, espalda y abdomen, juntos también. Y pectoral está ligado al respiratorio, también. Luego cuello, que es un músculo que pasa desapercibido pero es muy estético. Gemelos, tobillos, glúteos. Corriendo haces, pero también sentadillas. No solo están abdominales, están con tríceps solo, bueno. Todo así. Son ejercicios intruitivos, de irse notando las partes del cuerpo. No es dopaje, es un ejercicio de aligeramiento del cuerpo. Dopaje me refiero, no ya a tomar nada especial en la dieta siquiera, digo a repetir mucho movimientos que en la vida real de poco servirían. Por ejemplo, doparse muscularmente en el sentido de entrenar bíceps con mancuernas. El movimiento del bíceps no es un movimiento muy común. Pero es estético su resultado. Pues vería más útil levantarse usando los bíceps cogido a un palo horizontal más alto, que hacer mancuernas. Porque levantarse es un movimiento que se presta en la realidad como algo útil. Con mancuernas, puedes ir más allá con ese músculo. Pero es eso: ir más allá, ya es de más. Porque ese músculo ya pesa más para los otros. Pero bueno, da igual, la verdad: genética. Yo como, y no engordo. Y tampoco me muevo. Fumo hierba, eso sí. Y ahí libero ácidos y cosas que derriten, derriten lo que entra. Y creo un agujero negro. Y luego me hacen sentir mal por la comida. Ts.
+
+Pues todo va junto. Como la pierna es el músculo más grande, el cuádriceps concretamente, el Yonkipur se pincha por la pierna. No pincharse físicamente, con una aguja. Digo que te pinchas deporte por la pierna. Además, es el que te traslada por excelencia. Pues te pinchas por la pierna. Deporte. Y si fumar hierba, verás que el THC te afecta también por ahí si la ejercitas. Por cualquier lado, si lo ejercitas, en realidad.
+
+Pero puedes pincharte deporte hasta por la cara, los músculos de la cara son muchos. Ejercitar unas contracciones concretas pueden alterar tu psique, pueden sintetizar drogas poderosas en el ser. Pero peligrosas.
+
+Luego, hay músculos asociados a distintos roles o aspectos del ser.
+
+- el **abdomen**, por ejemplo, a contenerse, a saber contenerse. Yo por ejemplo, noto que fumar y abdomen son casi incompatibles. Nunca he definido abdomen por fumar, pienso. El abdomen abre y cierra al esfínter, por ejemplo, que sirve para contenerse.
+- **la espalda** y **el cuello** hablan de la seguridad y confianza en la persona.
+- **los bíceps**, para mí, hablan del control de lo que quieres. Porque las manos son las que usamos para manipular cosas. Y las manipulamos porque queremos algo de ellas.
+- **los tríceps** lo asocio con la capacidad para rechazar cosas, por la misma regla que los bíceps para acercar y controlar.
+- **los cuádriceps** y **los gemelos** sirven para levantarse, por lo cual lo asocio a la capacidad para hacer frente a las cosas.
+- **los gemelos** y **los tobillos** sirven para ponerse de puntillas, que es como dar más todavía. Es como, para dar lo máximo.
+- **hombros** con la capacidad de soportar cargas, y la capacidad de volar que sería como ir más allá pero no desde la tierra, lo mundano, sino desde lo de la cabeza, lo mental. Hay que acompañarlo de espalda y cuello.
+
+Pero el deporte internacional sería una forma de mover la cara sobre todo y emitir unos sonidos. Que lo que vienen a significar es «yo valgo comida, tabaco y porros», en mi caso. Y «comida». Pues el único que hace 23km. para ir a buscarla. En fin. En esas. Leyes. Guerras. Bolsa. Salarios. Trabajadores. Satélites. Tecnología. Contratos. Políticos. Negocios. Música. 
+
+> «yo valgo comida, tabaco y porros»
+
+Películas. Estrenos. Anuncios. Actores. Chismes. Dinero. Negocio. Multinacionales. Bancos. Países. Organizaciones. Tribunales multinacionales.
+
+> «yo valgo comida, tabaco y porros»
+
+Derechos humanos. Virus. Epidemias. Farmacéuticas. Negocio. Dinero. Gobiernos. Estrategias. TAE. ¿Qué es el TAE? El puto TAE. Hipoteca. Mercados. Divisas. Criptodivisas. Frikis. Divisas. Mercados. Materias primas. Países. Leyes. Formas de gobierno.
+
+> «yo valgo comida, tabaco y porros»
+
+Dictaduras. Extranjero. Miedo. Fronteras. Idiomas. Culturas. Religiones. Historia. Turismo. Precio. Dinero. Trabajo. Empleo. Rechazo. Rechazo social. Rechazo laboral. Rechazo económico. Rechazo psicológico. Rechazo físico.
+
+> «que yo valgo comida, tabaco y porros...»
+
+Aquí no. Vete. Vete. Aquí no, largo de aquí.
+
+Y así. Aquí. Allí. Más allí. Igual no hoy. Igual mañana. Igual pasado. Igual 1 mes.
+
+> «estoy seguro de que yo valgo comida, tabaco y porros...»
+
+Y vuelta. Estudiar. Tiempo. Dinero. Paciencia. Pacieeeeencia... Energía. Interés. Motivación. Fuente de datos. Homologación. Exámenes. Sector educativo. Corrupción. Vender. Ignorancia. Paciencia. Rechazo, resignación.
+
+> «pero estoy seguro de que yo valgo comida, tabaco y porros...»
+
+Trabajo. ETTs. Rechazo. Empleo fugaz. Jornada de 8 horas. Inestabilidad mental. Ayuda psicológica. Cita con Seguridad Social. Pide cita. Alguien te escuchará. Cita para dentro de dos meses. Te escuchará un día y te dará cita para dos meses más tarde. Y así. Esperando. Una ayuda.
+
+> «maldita sea, estoy casi seguro de que yo valgo comida, tabaco y porros...»
+
+Y espera. Y mundo. Noticias. Huracanes. Vientos. Lluvias. Soles. Cometas. Personas. Tecnologías. Descubrimientos. Actualidad. Actualidad, eterna actualidad. Trending topic. De interés público. Sobre el interés público. Bienes jurídicos. Prioridad jurídica. Conceptos. Derecho. Filosofía del derech... del lenguaj... del pensamient... de ti. 
+
+> «ves ahí, que sí, que yo valgo comida, tabaco y porros...»
+
+Filosofía. Pasado. Inútil. Pobres. ¿Filosofía? Todo. Filosofía, nada. Dinero. Cosas. ¿Dinero? Filosofía. Economía. Recursos. Contar. Base de datos. Informática nivel usario. Base de datos de recursos. De operaciones económicas. Economía algorítmica.
+
+> «veeees ahí, yo sabía, yo sabía que valgo comida, tabaco y porros...»
+
+¿Economía algorítmica? Desconocido. Filosofía. Poder. Sin margen. Economía real. Economíca irreal. Algoritmo real. Economía real. Economía algorítmica real.
+
+> «carooo, caro que sí, que yo valgo comida, tabaco y porros, joder»
+
+Economía real dinero. Economía algorítmica no. No significado. No ver. No entender. Tú loco. Tú pobre. Tú tonto. Tú, trabajar. ...
+
+> «yo valgo comida, tabaco y porros»
+
+Y vuelta.
