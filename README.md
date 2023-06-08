@@ -123,6 +123,7 @@ Algunos componentes que pueden acompañar:
 - **ramas de efedra**. Igual que el pino: tóxico, y con la leche se disuelve mejor el sabor. De normal, es como cítrico fresco. Vigilar las dosis. Usar puntualmente, acarrea problemas del cardíaco.
 - **poleo menta**. Es muy rica, pero es muy rara, yo no cogería porque sale poca, aunque igual funciona al revés, y hay que cogerla para ayudarla a espolvorear. No sé, pero es de las más buenas.
 - **manzanilla**. Está la bastarda, y la normal, que crece silvestre también. Pues está bien, está buena, pero es rara, no crece mucho por aquí, igual que el poleo, no lo suelo coger.
+ - **brezo**, por la frescura, cortado en leche se aprecia. Vigila que no tenga bichos, que esté fresco. Diría que tiene un efecto relajante.
 
 
 -----
@@ -203,7 +204,6 @@ Los **combos energizantes**, por otro lado, intentarían usar:
  - **te verde** o cualquier otro, por la teína.
  - **efedra**, por la efedrina. Cercana a la metanfetamina.
  - **pino**, por la vitamina C.
- - **brezo**, por la frescura, cortado en leche se aprecia. Vigila que no tenga bichos, que esté fresco.
  - **ajo**, por la alinina. 
  - **azúcar**, para dar la energía.
 
